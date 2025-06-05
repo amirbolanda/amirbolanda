@@ -35,7 +35,7 @@ Currently, I'm focused on developing AI-based tools, particularly in the fields 
 ### 📫 Get in Touch
 
 - 📧 Email: amirmasoudbolanda@gmail.com  
-- 💼 [LinkedIn](https://www.linkedin.com/in/amirbolanda)
+- 💼 [LinkedIn](https://www.linkedin.com/in/amir-masoud-bolanda)
 
 ---
 
